@@ -1,7 +1,5 @@
 ### Hi there 👋, Le Phuong Tram
 
-![IT Business Analyst Intern position.](https://www.linkedin.com/in/lpt285/)
-
 Hello, I am Lê Phương Trâm "I'm a third-year student of Finance and Banking at the University of Economics and Law,VNU-HCM. I have a passion for improving business processes and is seeking an IT Business Analyst Intern position. I really want to have an opportunity to work in a company and learn from experienced colleagues. 
 
 Skills :  HTML / CSS/SQL/FIGMA/ERD
