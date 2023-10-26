@@ -1,4 +1,4 @@
-![image](https://github.com/Lephuongtram285/Lephuongtram285/assets/136626855/0a7130fe-fb09-4dca-98ee-9231d478e81d)### Hi there 👋, Le Phuong Tram
+### Hi there 👋, Le Phuong Tram
 
 ![IT Business Analyst Intern position.](https://www.linkedin.com/in/lpt285/)
 
